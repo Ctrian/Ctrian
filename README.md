@@ -12,7 +12,7 @@ Me encanta transformar ideas en software funcional, intuitivo y útil, resaltand
 
 - 💬 **Pregúntame sobre:** desarrollo web, bases de datos e instalación de equipos de seguridad.
 - 📫 **Cómo contactarme:** [LinkedIn](https://www.linkedin.com/in/cristian-olivares-7b8672186/) · [Email](mailto:andrescalvache47@gmail.com)
-- 😄 **Pronombres:** Oli, Olisaurio, Cristian
+- 😄 **Apodos:** Oli, Olisaurio, Ctrian
 
 ---
 
